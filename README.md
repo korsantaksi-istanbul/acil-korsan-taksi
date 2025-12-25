@@ -13,7 +13,7 @@
 ### 🚀 Hemen Araç Çağırın
 Aşağıdaki bağlantıya tıklayarak doğrudan WhatsApp hattımıza bağlanabilir ve fiyat bilgisi alabilirsiniz:
 
-👉 [**WHATSAPP İLE TAKSİ ÇAĞIR (TIKLA)**](https://wa.me/numaranızburaya)
+👉 [**WHATSAPP İLE TAKSİ ÇAĞIR (TIKLA)**](https://wa.me/korsantaksi)
 
 ---
 
